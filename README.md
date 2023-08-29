@@ -8,6 +8,8 @@
 -durmo 7 horas por dia ☀️
 -poco insano 😃
 -esse site que gosto https://jellymar.io/ 🤠
+
+
 ![](https://media.tenor.com/cTUIoT8MBCYAAAAC/joker.gif)
 
 
