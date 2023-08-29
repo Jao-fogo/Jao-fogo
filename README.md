@@ -7,6 +7,7 @@
 -que fazo no tempo livre e literalmente assistir youtube e jogar
 -durmo 7 horas por dia ☀️
 -poco insano 😃
+-Soy youtuber famoso tigela_
 -esse site que gosto https://jellymar.io/ 🤠
 
 
