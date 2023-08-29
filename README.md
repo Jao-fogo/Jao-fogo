@@ -1,16 +1,15 @@
-### Hi there 👋
+-Eu soi João Lui Likes Penteado 🔥
 
-<!--
-**Jao-fogo/Jao-fogo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-Estou aprendemdo programação (JavaScript)
+-Utilizo esse espaço para compartilhar meus projetos
 
-Here are some ideas to get you started:
+-soy un profissionar gamer 🎮
+-que fazo no tempo livre e literalmente assistir youtube e jogar
+-durmo 7 horas por dia ☀️
+-poco insano 😃
+-esse site que gosto https://jellymar.io/ 🤠
+![](https://media.tenor.com/cTUIoT8MBCYAAAAC/joker.gif)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+![](https://media.tenor.com/V3jMOsQC2O0AAAAi/joker-joker-movie.gif)
+
